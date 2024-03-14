@@ -5,3 +5,5 @@ https://pixeldrain.com/u/BtVnfbCg
 https://pixeldrain.com/u/YgjPrCEc
 课程blm3850
 https://academics.uccs.edu/~ooluwada/courses/bioinformatics/#info
+普林斯顿微积分
+https://pixeldrain.com/u/77mDiBj9
